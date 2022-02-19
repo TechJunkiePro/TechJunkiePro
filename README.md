@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ashish
-- 👀 I’m interested in travelling and ofcouse Coding
+- 👀 I’m interested in travelling and ofcourse Coding
 - 🌱 I’m currently learning blockchain...
 - 📫 you can reach me on LinkedIn : https://www.linkedin.com/in/ashishyetre/
 
